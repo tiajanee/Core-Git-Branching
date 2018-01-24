@@ -24,6 +24,9 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Cardi B met the Unicorn King who granted him magic powers.
+Cardi B then married the zookeeper until she found out that it was not the Unicorn King that granted her powers
+but rather, the Trap King, son of Migos, who really changed her fate. The zookeeper then reveals himself to be a human-like nug
+of marijuana. So she smoked him, until he was no more. 
 The end.
 
 ## Cast
